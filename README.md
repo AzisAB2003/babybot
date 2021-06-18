@@ -87,10 +87,10 @@ Ket: Script ini gratis ye Jangan dijual_-
 
 ## SOSIAL MEDIA ADMIN <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/powerup.gif" width="29px">
 
-* [`Youtube Admin`](https://youtube.com/c/RAMLANID)
-* [`Instagram Admin`](https://instagram.com/iamramlan_)
-* [`WhatsApp Admin `](https://wa.me/+6285559240360)
-* [`Group WhatsApp `](https://chat.whatsapp.com/DcSr2e5hLMd7PkufBVymgu)
+*
+* [`Instagram Admin`](https://instagram.com/azs_(ab73)
+* [`WhatsApp Admin `](https://wa.me/+6283115413084)
+* [`Group Telegram `](https://t.me/Wongjowo)
 ## THANKS TO <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Handshake.gif" width="60px">
 
 * [`ALLAH SWT`]
